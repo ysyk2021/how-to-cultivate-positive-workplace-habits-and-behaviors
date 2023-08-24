@@ -1,5 +1,3 @@
-Chapter 2: Understanding Positive Workplace Habits and Behaviors
-================================================================
 
 Understanding positive workplace habits and behaviors is essential for cultivating a productive, supportive work environment. In this chapter, we will discuss the definition of positive workplace habits and behaviors, their impact on personal and professional development, and strategies for cultivating these habits.
 

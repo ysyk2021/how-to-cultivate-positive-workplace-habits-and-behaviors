@@ -1,5 +1,3 @@
-Benefits of Positive Workplace Culture for Employee Well-being and Productivity
-========================================================================================================
 
 Positive workplace culture is essential for employee well-being and productivity. In this chapter, we will discuss the benefits of positive workplace culture, and how cultivating positive workplace habits and behaviors can contribute to a positive work environment.
 

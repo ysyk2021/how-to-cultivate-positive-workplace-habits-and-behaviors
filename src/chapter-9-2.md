@@ -1,5 +1,3 @@
-Strategies for Using Positive Workplace Skills to Advance Your Career
-==========================================================================================================================================
 
 Applying positive workplace skills is essential for advancing your career. In this chapter, we will discuss specific strategies for using positive workplace skills to achieve professional growth and career advancement.
 

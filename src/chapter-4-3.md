@@ -1,5 +1,3 @@
-Using Mindfulness and Positive Affirmations
-===========================================================================================
 
 Practicing gratitude and positivity is essential for cultivating positive workplace habits and behaviors. In this chapter, we will discuss how to use mindfulness and positive affirmations as strategies for practicing gratitude and positivity in the workplace.
 

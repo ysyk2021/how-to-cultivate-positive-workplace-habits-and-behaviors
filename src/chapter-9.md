@@ -1,5 +1,3 @@
-Chapter 9: Applying Positive Workplace Skills to Career Advancement
-===================================================================
 
 Applying positive workplace skills is essential for personal and professional growth, including career advancement. In this chapter, we will discuss the benefits of using positive workplace skills for career advancement, as well as strategies for demonstrating leadership and good communication skills in the workplace.
 

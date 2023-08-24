@@ -1,5 +1,3 @@
-Using Mindfulness and Empathy-Building Techniques
-================================================================================================================
 
 Building self-awareness and emotional intelligence is essential for cultivating positive workplace habits and behaviors. In this chapter, we will discuss how to use mindfulness and empathy-building techniques to build self-awareness and emotional intelligence.
 

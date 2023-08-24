@@ -1,5 +1,3 @@
-Strategies for Navigating Change and Adversity with Resilience
-==========================================================================================================================
 
 Navigating change and adversity with resilience is essential for cultivating positive workplace habits and behaviors. In this chapter, we will discuss specific strategies for navigating change and adversity with resilience.
 

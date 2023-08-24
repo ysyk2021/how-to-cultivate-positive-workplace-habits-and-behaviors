@@ -1,5 +1,3 @@
-Chapter 5: Navigating Change and Adversity with Resilience
-==========================================================
 
 Navigating change and adversity with resilience is essential for cultivating positive workplace habits and behaviors. In this chapter, we will discuss the importance of resilience in the workplace, strategies for navigating change and adversity with resilience, and problem-solving and stress-management techniques.
 

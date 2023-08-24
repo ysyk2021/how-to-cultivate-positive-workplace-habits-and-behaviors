@@ -1,5 +1,3 @@
-Chapter 7: Demonstrating Professionalism and Ethics
-===================================================
 
 Demonstrating professionalism and ethics is essential for cultivating positive workplace habits and behaviors. In this chapter, we will discuss the importance of professionalism and ethics in the workplace, strategies for demonstrating professionalism and ethics, and using ethical decision-making frameworks and leading by example.
 

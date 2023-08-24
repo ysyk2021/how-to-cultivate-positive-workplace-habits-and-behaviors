@@ -1,5 +1,3 @@
-Using Team-Building Activities and Cross-Functional Projects
-=============================================================================================================
 
 Collaboration and teamwork are essential for achieving organizational goals and cultivating positive workplace habits and behaviors. In this chapter, we will discuss the importance of collaboration and teamwork, and provide guidance on how to foster these qualities through team-building activities and cross-functional projects.
 

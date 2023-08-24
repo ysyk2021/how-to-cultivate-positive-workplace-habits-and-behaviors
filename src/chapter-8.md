@@ -1,5 +1,3 @@
-Chapter 8: Measuring Positive Workplace Success
-===============================================
 
 Measuring positive workplace success is essential for evaluating the effectiveness of strategies for cultivating positive workplace habits and behaviors. In this chapter, we will discuss methods for measuring positive workplace success, analyzing employee engagement and satisfaction data and KPIs, and adjusting positive workplace strategies based on feedback.
 

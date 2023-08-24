@@ -1,5 +1,3 @@
-Using Problem-Solving and Stress-Management Techniques
-==================================================================================================================
 
 Navigating change and adversity with resilience is essential for cultivating positive workplace habits and behaviors. In this chapter, we will discuss how to use problem-solving and stress-management techniques to navigate change and adversity with resilience.
 

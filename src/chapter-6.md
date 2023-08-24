@@ -1,5 +1,3 @@
-Chapter 6: Fostering Collaboration and Teamwork
-===============================================
 
 Fostering collaboration and teamwork is essential for cultivating positive workplace habits and behaviors. In this chapter, we will discuss the importance of collaboration and teamwork in the workplace, strategies for fostering collaboration and teamwork, and using team-building activities and cross-functional projects.
 

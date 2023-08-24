@@ -1,5 +1,3 @@
-Strategies for Cultivating Positive Workplace Habits and Behaviors
-====================================================================================================================================
 
 Cultivating positive workplace habits and behaviors is essential for personal and professional development. In this chapter, we will discuss strategies for cultivating positive workplace habits and behaviors.
 

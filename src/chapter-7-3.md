@@ -1,5 +1,3 @@
-Using Ethical Decision-Making Frameworks and Leading by Example
-====================================================================================================================
 
 Demonstrating professionalism and ethics is essential for cultivating positive workplace habits and behaviors. In this chapter, we will discuss how to use ethical decision-making frameworks and lead by example to promote professionalism and ethics in the workplace.
 

@@ -1,5 +1,3 @@
-Strategies for Practicing Gratitude and Positivity
-==================================================================================================
 
 Practicing gratitude and positivity is essential for cultivating positive workplace habits and behaviors. In this chapter, we will discuss specific strategies for practicing gratitude and positivity in the workplace.
 

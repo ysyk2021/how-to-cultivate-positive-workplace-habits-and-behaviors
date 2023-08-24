@@ -1,5 +1,3 @@
-Chapter 3: Building Self-Awareness and Emotional Intelligence
-=============================================================
 
 Building self-awareness and emotional intelligence is essential for cultivating positive workplace habits and behaviors. In this chapter, we will discuss the importance of self-awareness and emotional intelligence in the workplace, strategies for building self-awareness and emotional intelligence, and using mindfulness and empathy-building techniques.
 

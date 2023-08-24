@@ -1,5 +1,3 @@
-The Role of Practicing Gratitude and Positivity in Cultivating Positive Workplace Habits and Behaviors
-======================================================================================================================================================
 
 Practicing gratitude and positivity is essential for cultivating positive workplace habits and behaviors. In this chapter, we will discuss the importance of gratitude and positivity in the workplace, strategies for practicing gratitude and positivity, and the benefits of cultivating these habits.
 

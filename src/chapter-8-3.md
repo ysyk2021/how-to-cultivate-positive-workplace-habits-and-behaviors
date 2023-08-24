@@ -1,5 +1,3 @@
-Adjusting Positive Workplace Strategies Based on Feedback
-==========================================================================================================
 
 Measuring positive workplace success is essential for ensuring that strategies for cultivating positive workplace habits and behaviors are effective. In this chapter, we will discuss the importance of measuring success, strategies for gathering feedback, and adjusting positive workplace strategies based on feedback.
 

@@ -1,5 +1,3 @@
-Chapter 4: Practicing Gratitude and Positivity
-==============================================
 
 Practicing gratitude and positivity is essential for cultivating positive workplace habits and behaviors. In this chapter, we will discuss the role of gratitude and positivity in the workplace, strategies for practicing gratitude and positivity, and using mindfulness and positive affirmations.
 

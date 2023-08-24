@@ -1,5 +1,3 @@
-Methods for Measuring Positive Workplace Success
-=================================================================================================
 
 Measuring positive workplace success is essential for evaluating the effectiveness of positive workplace habits and behaviors. In this chapter, we will discuss methods for measuring positive workplace success and the benefits of doing so.
 

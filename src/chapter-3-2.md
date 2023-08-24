@@ -1,5 +1,3 @@
-Strategies for Building Self-Awareness and Emotional Intelligence
-================================================================================================================================
 
 Building self-awareness and emotional intelligence is essential for cultivating positive workplace habits and behaviors. In this chapter, we will discuss specific strategies for building self-awareness and emotional intelligence.
 

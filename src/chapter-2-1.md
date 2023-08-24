@@ -1,5 +1,3 @@
-Definition of Positive Workplace Habits and Behaviors
-=======================================================================================================================
 
 Positive workplace habits and behaviors are essential for the success of individuals and organizations. In this chapter, we will define positive workplace habits and behaviors and provide examples of these qualities.
 

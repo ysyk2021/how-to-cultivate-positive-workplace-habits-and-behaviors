@@ -1,5 +1,3 @@
-Strategies for Fostering Collaboration and Teamwork
-====================================================================================================
 
 Fostering collaboration and teamwork is essential for cultivating positive workplace habits and behaviors. In this chapter, we will discuss specific strategies for fostering collaboration and teamwork in the workplace.
 

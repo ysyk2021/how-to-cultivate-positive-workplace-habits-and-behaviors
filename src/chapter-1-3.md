@@ -1,5 +1,3 @@
-Overview of the Book
-=============================================
 
 Positive workplace habits and behaviors are essential for personal and professional success. In this book, we will explore strategies for cultivating positive workplace habits and behaviors, including effective time management, goal-setting, communication skills, collaboration, adaptability, continuous learning, and a positive attitude.
 
