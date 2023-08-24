@@ -1,5 +1,4 @@
 
-
 In this book, we have explored strategies for cultivating positive workplace habits and behaviors, building self-awareness and emotional intelligence, fostering collaboration and teamwork, and achieving success in the workplace.
 
 Summary of Key Points
