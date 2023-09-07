@@ -8,3 +8,7 @@ We will then provide practical tips for improving communication skills, building
 Whether you are an employee seeking to improve your own workplace habits and behaviors or a manager seeking to foster a positive workplace culture, this book will provide valuable insights and strategies for achieving success in the workplace. By prioritizing positivity, collaboration, and personal growth, readers can achieve their career goals and improve overall job satisfaction.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
