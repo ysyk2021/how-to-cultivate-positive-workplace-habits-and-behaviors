@@ -1,5 +1,4 @@
-Chapter 9: Strategies for Navigating Change and Adversity with Resilience
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Change and adversity are inevitable in any workplace, and the ability to navigate these challenges with resilience is essential for individual and organizational success. Resilience involves adapting to change, overcoming obstacles, and maintaining a positive mindset. In this chapter, we will discuss strategies for navigating change and adversity with resilience.
 

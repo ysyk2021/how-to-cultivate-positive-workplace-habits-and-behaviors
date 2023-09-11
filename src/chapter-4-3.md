@@ -1,5 +1,4 @@
-Chapter 11: Using Mindfulness and Positive Affirmations to Cultivate Positive Workplace Habits and Behaviors
-============================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Creating a positive work environment that fosters growth, creativity, and collaboration requires individual effort and commitment. Practicing mindfulness and using positive affirmations can help individuals cultivate positive workplace habits and behaviors, leading to improved performance and overall well-being. This chapter explores the benefits of mindfulness and positive affirmations and provides guidance on how to incorporate them into daily routines.
 

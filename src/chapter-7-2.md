@@ -1,5 +1,4 @@
-Chapter 6: Strategies for Demonstrating Professionalism and Ethics
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Maintaining professionalism and demonstrating ethical behavior are foundational aspects of positive workplace habits and behaviors. They contribute to a culture of trust, respect, and integrity within an organization. In this chapter, we will explore strategies for cultivating professionalism and ethics in the workplace.
 

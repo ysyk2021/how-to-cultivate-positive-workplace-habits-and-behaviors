@@ -1,5 +1,4 @@
-Chapter 1: Definition of Positive Workplace Habits and Behaviors
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Positive workplace habits and behaviors are the foundation of a healthy and productive work environment. They encompass a range of attitudes, actions, and characteristics that contribute to individual and collective success. In this chapter, we will explore the definition of positive workplace habits and behaviors and understand their significance in fostering a positive work culture.
 

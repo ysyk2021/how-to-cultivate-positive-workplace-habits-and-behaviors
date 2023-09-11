@@ -1,5 +1,4 @@
-Chapter 9: The Importance of Navigating Change and Adversity with Resilience in Cultivating Positive Workplace Habits and Behaviors
-===================================================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Change and adversity are inevitable in any workplace, and the ability to navigate these challenges with resilience is essential for cultivating positive workplace habits and behaviors. Resilience involves adapting to change, overcoming obstacles, and maintaining a positive mindset. In this chapter, we will explore the importance of resilience in navigating change and adversity and how it contributes to fostering positive workplace habits and behaviors.
 

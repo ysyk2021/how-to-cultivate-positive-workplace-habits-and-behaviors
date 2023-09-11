@@ -1,5 +1,4 @@
-Chapter 8: Strategies for Using Positive Workplace Skills to Advance Your Career
-================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for using positive workplace skills to advance your career. By leveraging these skills effectively, you can create a strong foundation for career growth and success.
 

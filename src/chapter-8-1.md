@@ -1,5 +1,4 @@
-Chapter 10: Methods for Measuring Positive Workplace Success
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various methods for measuring positive workplace success. Measuring success is crucial for evaluating the effectiveness of your efforts in cultivating positive habits and behaviors in the workplace. By employing these methods, you can gain insights into the impact of your actions and make informed decisions for continuous improvement.
 

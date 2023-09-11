@@ -1,5 +1,4 @@
-Chapter 8: Demonstrating Leadership and Good Communication Skills
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of demonstrating leadership and good communication skills in cultivating positive workplace habits and behaviors. These skills are essential for fostering a productive work environment and advancing your career.
 

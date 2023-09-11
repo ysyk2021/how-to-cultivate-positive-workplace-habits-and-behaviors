@@ -1,5 +1,4 @@
-Chapter 11: Strategies for Practicing Gratitude and Positivity
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Incorporating gratitude and positivity into our daily lives is essential for cultivating positive workplace habits and behaviors. When we actively practice gratitude and maintain a positive mindset, we create a work environment that fosters collaboration, productivity, and overall well-being. This chapter explores various strategies for practicing gratitude and positivity in the workplace.
 

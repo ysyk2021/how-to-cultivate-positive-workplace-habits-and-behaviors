@@ -1,5 +1,4 @@
-Chapter 8: The Benefits of Applying Positive Workplace Skills to Career Advancement
-===================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Positive workplace skills, such as effective communication, conflict resolution, and collaboration, are not only essential for creating a positive work environment but also for career advancement. In this chapter, we explore the benefits of applying positive workplace skills to career advancement and how they contribute to professional success.
 

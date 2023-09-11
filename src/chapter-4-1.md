@@ -1,5 +1,4 @@
-Chapter 10: The Role of Practicing Gratitude and Positivity in Cultivating Positive Workplace Habits and Behaviors
-==================================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In cultivating positive workplace habits and behaviors, practicing gratitude and fostering a positive mindset are essential. This chapter explores the significance of gratitude and positivity in the workplace and provides guidance on how to incorporate them into daily routines to create a more positive work environment.
 
